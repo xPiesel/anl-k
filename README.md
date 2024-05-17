@@ -1,1 +1,1 @@
-# anl-k
+kulüp toplantısında bir gün
